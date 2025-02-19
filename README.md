@@ -37,5 +37,5 @@ Banner placement on Dexview, 4Chan, Bscscan, NYC, and other relevant sites.
 ✅Telegram Community Growth & Engagement:
 Community hype services including Telegram HypeMen, bot members, mass DMs, shillers, raiders, and other group management services.
 
-✅Past Work: @
-✅Main Account: @Saad12367
+✅Past Work: https://t.me/+st8q56B0ow80ZmZk
+✅Main Account: @defkazillions
